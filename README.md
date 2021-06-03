@@ -1,1 +1,1 @@
-https://rubik.ai 
+https://tmdc.io
